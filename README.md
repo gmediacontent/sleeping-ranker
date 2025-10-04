@@ -1,1 +1,2 @@
-# sleeping-ranker
+# Sleeping Ranker
+Entre sa soeur malade et son boss tyrannique, Hyunsung n'a pas la vie facile... Alors pour se reposer, il a trouvé l'astuce : il dort dans un jeu en réalité virtuelle où le temps passe cinq fois plus lentement. Mais un jour, une fenêtre apparaît... et lui apprend qu'il a acquis une classe divine ! Il est désormais capable de progresser rien qu'en dormant ! Maintenant, c'est sûr, plus rien ne peut l'arrêter : fini, le job barbant, il sera joueur pro !
